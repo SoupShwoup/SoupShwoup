@@ -1,5 +1,6 @@
 - Hey, I'm SoupShwoup! Call me Shwoup if you prefer
 - I'm an artist and I'm learning game development/code
-- Discord: @soupshwoup 
+- Discord: @soupshwoup
 - He/it/she but I generally go by He/him
 - I'm Aromantic Asexual
+- Feel free to ask for art suggestions
