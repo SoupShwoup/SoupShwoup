@@ -1,6 +1,6 @@
 - Hey, I'm SoupShwoup! Call me Shwoup if you prefer
 - I'm an artist and I'm learning game development/code
 - Discord: @soupshwoup
-- He/it/she but I generally go by He/him
-- I'm Aromantic Asexual
+- She/he
+- I'm Aromantic Asexual & genderfluid
 - Feel free to ask for art suggestions
