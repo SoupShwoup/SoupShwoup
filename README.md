@@ -1,6 +1,6 @@
-- Hey, I'm SoupShwoup! Call me Shwoup if you prefer
-- I'm an artist and I'm learning game development/code
+- Hey, I'm SoupShwoup! I go by either Shwoup or Femillin
+- I'm an artist and I'm learning Python
 - Discord: @soupshwoup
-- She/he
+- She/him
 - I'm Aromantic Asexual & genderfluid
-- Feel free to ask for art suggestions
+- Feel free to ask for art requests if you want
