@@ -1,6 +1,5 @@
-- Hey, I'm SoupShwoup! I go by either Shwoup or Femillin
+- Hey, I'm SoupShwoup! I go by either Shwoup or Femillin or just Fel
 - I'm an artist and I'm learning Python
 - Discord: @soupshwoup
-- She/him
+- She/him/any
 - I'm Aromantic Asexual & genderfluid
-- Feel free to ask for art requests if you want
