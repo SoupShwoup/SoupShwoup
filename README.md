@@ -1,5 +1,5 @@
-- Hey, I'm SoupShwoup! I go by either Shwoup or Fel
-- I'm an artist and I'm learning mainly pthon & lua
+- Hey, I'm SoupShwoup! I go by either Shwoup or Fel(yn)
+- I'm an artist and I'm learning mainly python & lua for programing
 - Discord: @soupshwoup
-- She/him/any
+- She/him/it - any
 - Aromantic Asexual & genderfluid
